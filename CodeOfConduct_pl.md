@@ -22,7 +22,7 @@ praca została ukonczona po prostu dla dobra społeczności. Jesteśmy uprzejmi
 podczas komunikacji, czy osobiscie czy online, oraz jesteśmy taktowni względem 
 innych poglądów.
 
-Pełni szacunku
+Pełen szacunku
 ---------------
 
 Członkowie społeczności są pełni szacunku. Szanujemy innych, ich pozycję, 
